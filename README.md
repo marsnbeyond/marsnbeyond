@@ -6,6 +6,7 @@ I'm currently working on:
 >NAS Server
 >HOME Lab
 >CompTIA A+ and Security+
+>Electric Skateboard
 
 The tools that I use are just my laptop lol
 I can be reached by my LinkedIn, or by sending me a message on my email!
